@@ -19,35 +19,36 @@ Facilitated training to individuals on-site or remotely via multiple delivery mo
 
 ## Experience
 
-*2013 - (currently under contract)* 
+*2013 - (currently under contract)*  
 **Capital Area Intermediate Unit**
 
 Comprehensive Planning Web application & Future Ready Planning Portal
 Project Coordinator; QA, Training, Documentation; BA
 
 
-*2008 - 2013* 
+*2008 - 2013*  
 **EDSI, Inc**
 
 Pennsylvania's Workforce Development program
 Data Analysis, Documentation and Reporting Specialist
 
 
-*2005 - 2008* 
+*2005 - 2008*  
 **Lehman Brothers**
 
 CampusDoor Financial assistance software program 
 Project Management Office Coordinator; Software Testing and Documentation
 
-*2001 - 2005* 
+*2001 - 2005*  
 **Highmark Insurance Company**
 
 Provider Relations & Contracting
 Program Analyst; Contracting Specialist
 
 
-*1998 - 2001* 
-**Bon-Ton, Inc**
+*1998 - 2001*   
+**Bon-Ton, Inc** 
+
 Retail Sales Associate & Trainer  
 
 
