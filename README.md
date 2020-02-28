@@ -50,7 +50,7 @@ Retail Sales Associate & Trainer
 
 ## Education
 
-AA - Business Administration; YTI & Bon-Ton Management Trainee Program
+AA - Business Administration; YTI & Bon-Ton Management Trainee Program  
 Focus: Marketing and Information Technology; Consumer Trends
 
 
