@@ -62,26 +62,26 @@ Focus: Marketing and Information Technology; Consumer Trends
 ### Community involvement & Internships
 
 *2013-2020*
-CAIU - Champions for Children
+**CAIU - Champions for Children**
 
 Graphic design; Event planning for regional and state educational conferences
 
 *2012 - 2014*
-Leukemia & Lymphoma Society
+**Leukemia & Lymphoma Society**
 
 Graphic & Webpage design
 
 Fundraising and Event Planning - Man and Woman of the Year Campaign
 
 *2012*
-Campbell Commercial Real Estate
+**Campbell Commercial Real Estate**
 
 Print & Webpage design 
 
 Marketing Coordinator
 
 *2008 - 2012* 
-Aquabird Software Consulting Agency
+**Aquabird Software Consulting Agency**
 
 Office Coordinator, Developer Relations & Engagement
 
