@@ -1,6 +1,6 @@
 ## Nicole Miller-Abuhakmeh
 
-Having been in the software industry for over 10 years, I felt I needed a new updated space for my resume. 
+ 
 
 
 ### Markdown
