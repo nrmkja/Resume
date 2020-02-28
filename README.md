@@ -17,10 +17,9 @@ Facilitated training to individuals on-site or remotely via multiple delivery mo
 
 
 
-### Experience
+## Experience
 
 *2013 - (currently under contract)*
-
 **Capital Area Intermediate Unit**
 
 Comprehensive Planning Web application & Future Ready Planning Portal
@@ -28,7 +27,6 @@ Project Coordinator; QA, Training, Documentation; BA
 
 
 *2008 - 2013*
-
 **EDSI, Inc**
 
 Pennsylvania's Workforce Development program
@@ -36,7 +34,6 @@ Data Analysis, Documentation and Reporting Specialist
 
 
 *2005 - 2008*
-
 **Lehman Brothers**
 
 CampusDoor Financial assistance software program 
@@ -44,7 +41,6 @@ Project Management Office Coordinator; Software Testing and Documentation
 
 
 *2001 - 2005*
-
 **Highmark Insurance Company**
 
 Provider Relations & Contracting
@@ -57,22 +53,20 @@ Retail Sales Associate & Trainer
 
 
 
-### Education
+## Education
 
 AA - Business Administration; YTI & Bon-Ton Management Trainee Program
 Focus: Marketing and Information Technology; Consumer Trends
 
 
-#### Community involvement & Internships
+### Community involvement & Internships
 
 *2013-2020*
-
 CAIU - Champions for Children
 
 Graphic design; Event planning for regional and state educational conferences
 
 *2012 - 2014*
-
 Leukemia & Lymphoma Society
 
 Graphic & Webpage design
@@ -87,7 +81,6 @@ Print & Webpage design
 Marketing Coordinator
 
 *2008 - 2012* 
-
 Aquabird Software Consulting Agency
 
 Office Coordinator, Developer Relations & Engagement
